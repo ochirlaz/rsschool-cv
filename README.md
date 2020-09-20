@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ochirlaz.github.io/rsschool-cv/cv
